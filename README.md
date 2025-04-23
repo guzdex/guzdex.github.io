@@ -1,1 +1,0 @@
-# guzdex.github.io
